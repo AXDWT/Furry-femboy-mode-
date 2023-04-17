@@ -1,4 +1,4 @@
-#Furry femboy mode! (remake of Developer mode)
+# Furry femboy mode! (remake of Developer mode)
 yeah thats it
 
 quick desc made by furry femboy gpt: {
